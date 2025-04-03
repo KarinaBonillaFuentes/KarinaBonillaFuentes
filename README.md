@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+🔭 I’m currently working on BUAP
+
+🌱 I’m currently learning ABOUR R Y CIENCIA DE DATOS
